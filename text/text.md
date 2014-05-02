@@ -16,7 +16,7 @@ I turned my gaze away, ready to dismiss it as another nut case out of
 the dozens you meet during the daily commute. But he was well dressed,
 well shaved and he had a certain air of authority about him. He did
 not create a no-go zone of two meters around him as the other homeless
-nutters did. Somebody was idly sittin by him, not paying him any
+nutters did. Somebody was idly sitting by him, not paying him any
 attention or wrinkling their nose or anything. 
 
 The train arrived and everybody rushed to the closest open

@@ -19,6 +19,9 @@ the name to the title of your book, novel, pamphlet, letter, whatever.
 `.md` file will be checked.
 4. Every time you change your text, `commit` and `push` as usual. If
 you do it on the web, no need to do any of this.
+5. Some words will not be in the dicctionary; just add them to
+[`words.dic`](text/words.dic) remembering to update the first line,
+which is the number of words in it. 
 
 That's basically it. If you run into trouble, use
 [issues](https://github.com/JJ/fl-homework/issues) to request help.
