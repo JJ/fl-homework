@@ -43,9 +43,9 @@ like a shot-up tail in the back of the head.
 
 And his hands. Endow him with a portfolio and he would be the
 quintessential City yuppy. Not that yuppies exist any more, but then
-nobody uses argyle nowadays either. But his nads were moving this way
+nobody uses argyle nowadays either. But his hands were moving this way
 and that, without his arms actually feeling that motion and hanging
-loose at thesides of the body. 
+loose at the sides of the body. 
 
 I walked past him on my way to the lift out of the station and the
 doorknob-showing. He was oblivious of my attention or, for that
