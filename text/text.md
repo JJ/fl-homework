@@ -8,7 +8,7 @@ it. It was as if he was marking a bench slot, sending a signal to the
 crowd about his territory and maybe his will to defend it. 
 
 I first thought he had just stood, a few seconds before I arrived. A
-bit of mild cardio. Stand up, sit down. And wo on. Something he seemed to be needing
+bit of mild cardio. Stand up, sit down. And so on. Something he seemed to be needing
 badly, since he was pear-shaped and slouching. Maybe as a part of it,
 or just because, he was balancing slightly on his heels, looking like
 a single-pronged and bulbous tuning fork. Also one that missed several
