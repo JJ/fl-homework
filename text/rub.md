@@ -9,6 +9,6 @@ innards and those of your mates at the jungle.
 
 Maybe he had said "talc"? When that word was coming out of his
 toothless mouth, the Tacoma coal train was coming in at the far end of
-the railyard, humming and singing and generally making a racket that,
+the rail yard, humming and singing and generally making a racket that,
 for a moment, hid the wail of the newborn baby.
 
