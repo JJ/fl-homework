@@ -1,4 +1,4 @@
-Rnotub the rube
+Rub the rube
 =====
 
 "Rub the baby with lard", Old Toothless Ted said, "r"s actually
