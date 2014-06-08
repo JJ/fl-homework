@@ -1,4 +1,4 @@
-Rub the rube
+Rnotub the rube
 =====
 
 "Rub the baby with lard", Old Toothless Ted said, "r"s actually
@@ -18,7 +18,7 @@ minute in her grayish-brown huge hands. A new, crying potato that was
 about to be rubbed. With lard. Or talc. 
 
 "Don't be a stupid, Ted." Winnie said. "Lard. You could as well do it
-with spittle" She continuned rocking the baby in her hands. She could
+with spittle" She continued rocking the baby in her hands. She could
 have crushed that head without breaking a sweat. I know she can do
 that, that she can do. But, instead, she was humming and making an
 attempt at a smile that her face muscles refused to do. 
