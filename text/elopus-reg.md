@@ -1,0 +1,4 @@
+Crack the kraken
+===
+
+"It's not been easy, Your Majesty," the human said, "the dastardly beast just didn't want to submit itself". Misha the Queen flinched. She just could not make out the intentions of Her human subjects. Such a small head, no tentacles. Unlike the kraken he had captured. Thrashing, barely contained in the swimming pool where he had been kept since his capture. His dark blue eyes reflected the neon lights of the Queen's own private wharf, where the HMS Rascal had docked. "You are a most loyal servant, Alasdair," she blared, "Now leave me alone". In small cluster, never giving her the back, they left. Her elopi-in-waiting, Trisha and Calisha, staid, as they always did. And they also knew that, whatever royal pleasures the Queen had reserved for her, She would partake. They observed, delighted, while Misha mated with the kraken.
